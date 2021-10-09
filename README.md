@@ -1,3 +1,4 @@
 ### Primeira aula Banco Pan
-### Taisis Marinelo.
-###  Uma curiosidade e que eu amo livros, cozinhar e musicas desconhecidas.
+### Taisis Marinelo
+### Lasanha
+### Coleciono livor, ou tento  rsrs
